@@ -1,3 +1,5 @@
+Hi 👋, I'm Babu
+A passionate Web Developer
 - 👋 Hi, I’m @Babu
 - 👀 I’m interested in Web Development
 - 🌱 I’m currently learning Front-end Development
