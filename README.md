@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **babu.karpuram14@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/drive/u/1/my-drive](https://drive.google.com/drive/u/1/my-drive)
+- 📄 Know about my experiences [https://drive.google.com/drive/u/1/my-drive]((https://drive.google.com/file/d/1kpAuF0FuIBJBhKUBf9sf6eJZX1Vzoa70/view?usp=sharing))
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
